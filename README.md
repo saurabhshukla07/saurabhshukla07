@@ -8,7 +8,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=saurabhshukla07&label=Profile%20views&color=0e75b6&style=flat" alt="saurabhshukla07" /> </p>
 
-- 👨‍💻 My CV [https://drive.google.com/file/d/1nbNrBa-FM3fqxktbrlYBJzDCYr_bZIYB/view?usp=drive_link](https://drive.google.com/file/d/1nbNrBa-FM3fqxktbrlYBJzDCYr_bZIYB/view?usp=drive_link)
+- 👨‍💻 My CV [https://drive.google.com/file/d/1nbNrBa-FM3fqxktbrlYBJzDCYr_bZIYB/view?usp=drive_link](https://drive.google.com/file/d/1ZOZ9N4v-TlSMXD1Vj-aZpqom0xgZing9/view?usp=sharing)
 
 - 📫 How to reach me **Sidshukla8416@gmail.com**
 
